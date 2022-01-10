@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bibin-Antony
-- 👀 I’m interested in coding and leanring new stuff!
+- 👀 I’m interested in coding and learning new stuff!
 - 🌱 I’m currently learning and growning.
 - 💞️ I’m looking to collaborate on projects. 
 - 📫 How to reach me Email me - antonybibin43@gmail.com 
